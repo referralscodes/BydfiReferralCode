@@ -1,2 +1,37 @@
-# BydfiReferralCode
-BYDFi Referral Code
+# BYDFi Referral Code: UQjiHc - Sign Up Today and Unlock a $2,888 Surprise!
+
+🎉 Register and enter code "**UQjiHc**" to unlock a suite of exclusive bonuses created especially for new users:
+**💸 Welcome Bonus – Up to $288 USDT!**
+Earn generous rewards simply by completing easy onboarding tasks:
+✔️ Verify your identity
+✔️ Make your first deposit
+✔️ Place your first trade
+
+**🪙 Deposit Bonuses**
+Depending on current promotions, you might receive a 5%–100% deposit bonus, giving you more to trade with and less risk up front.
+
+**📉 Reduced Trading Fees**
+Why pay more? With the referral code “**UQjiHc**”, you’ll enjoy reduced trading fees — saving you money from day one.
+
+**🔁 Earn While You Invite**
+After signing up, you can share your own referral code and earn up to 40% commission from your friends’ trading activity. Great for content creators, communities, or simply sharing with friends!
+
+**💡 Why using the referral code "UQjiHc" is essential**:
+It’s simple: no code, no bonus. These valuable perks are only available to users who sign up with a referral link or enter a valid code. Don’t leave free rewards on the table!
+
+👉 Code “**UQjiHc**” ensures you start your trading journey with free value, reduced risk, and a clear head start in the market.
+
+**🧩 Perfect for Beginners – Built with Simplicity in Mind**
+Unlike many complex exchanges that feel like they’re built only for experts, BYDFi is made for everyone. Whether you’re a crypto veteran or a complete beginner, BYDFi has something for you.
+
+✅ User-friendly interface – Intuitive, clean, and clutter-free. No crypto experience? No problem.
+✅ Copy Trading – Not ready to trade manually? Just follow professional traders automatically and learn as you go.
+✅ Mobile app experience – Trade anywhere, anytime.
+✅ Supports multiple languages – Including English, Vietnamese, and more.
+✅ Top-tier security – 2FA, cold wallet storage, and fast customer support to protect your assets.
+
+**🛎️ Final Thoughts:**
+Don’t let uncertainty hold you back. With BYDFi and referral code "UQjiHc", you're not just signing up — you're stepping into the crypto space with powerful tools, real rewards, and a platform that grows with you.
+
+**💥 It’s never been easier — or more rewarding — to start your crypto journey.**
+👉 Sign up today at BYDFi and claim what’s yours!
